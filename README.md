@@ -1,3 +1,4 @@
-# CM-xml_splitter
-For CM xml splitting and griding/formatting
-Let's Go Warriors
+# Let's Go Warriors
+Western Conference finals
+
+Game 4 tonight
